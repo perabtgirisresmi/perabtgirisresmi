@@ -1,2 +1,2 @@
 PERABET GİRİŞ ADRESİ İÇİN RESMİ BİLGİLENDİRME PLATFORMUNA HOŞGELDİNİZ. HEMEN GİRİŞ YAP LİNKİNE TIKLAYARAK GÜNCEL ADRESE ULAŞABİLİRSİNİZ.
-<h1><a href="http://gg.gg/1bz554" title="PERABET GİRİŞ YAP">PERABET GİRİŞ YAP</a></h1>
+<h1><a href="https://n9.cl/zy0u7" title="PERABET GİRİŞ YAP">PERABET GİRİŞ YAP</a></h1>
